@@ -1,5 +1,5 @@
 👋 Welcome to My GitHub Profile!
-![image](https://github.com/user-attachments/assets/e9c7123c-da8a-4dcd-8aeb-6d1c10b891a4)
+![429163651-e9c7123c-d _imresizer](https://github.com/user-attachments/assets/480f76dc-96eb-4cfa-afd1-9c0cdbe92978)
 
 🚀 About Me
 
